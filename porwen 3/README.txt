@@ -1,0 +1,33 @@
+to open applications, type the letter and press enter.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+copyright 2016-20xx
